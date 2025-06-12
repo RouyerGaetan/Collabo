@@ -1,3 +1,3 @@
 # Collabo
 
-- Eve est la plus belle des transylvanienne
+- Eve est la plus belle des transylvan
